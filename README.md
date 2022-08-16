@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IMPChristian
+- 👋 Hi, I’m @notresauveur majesty
 - 👀 I’m interested in ... Coding, Jeopardy, corgis, and being outside
 - 🌱 I’m currently learning ... How to use GitHub!
 - 💞️ I’m looking to collaborate on ... Anything GitHub-related
